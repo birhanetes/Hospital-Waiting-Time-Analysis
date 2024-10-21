@@ -8,7 +8,7 @@
 
 3.  Question from Management
    
-a. Why are we getiig these compliants?
+a. Why are we getting these compliants?
 
 	- Do we have staffing issues
 	- Are these compliants legitmate?
